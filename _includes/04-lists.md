@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* First time on github?
+  * Yap
+*Welcome than!
+  * :smile:
