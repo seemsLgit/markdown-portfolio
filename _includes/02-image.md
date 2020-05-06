@@ -1,0 +1,1 @@
+![Image of meme](https://lh3.googleusercontent.com/proxy/M64FsiUD7en5G1ujkVwM1zaxxZnNZqcToATm8RnEijEI0i4WI--sxhMJy8KpRdnaYGwyuyMSugU59LtW27AXYE5H2Iswj0v0tANS-uayndIlXNVxupayhngi28DRZV2VNojIOxr981ikMNuba4AtM6zjvMgzfhUqMmk)
