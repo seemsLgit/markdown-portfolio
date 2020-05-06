@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Learned __Python__, __HTML5__, __CSS3__, currently working and learning with __C!__
+Also **Matlab** 
